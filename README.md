@@ -87,5 +87,4 @@ Creativity and technology fuse to turn ideas into experiences. From impactful br
 ## 🇲🇽 Breve resumen (Español)
 
 Director creativo y diseñador digital con más de 20 años de experiencia, fusionando arte, tecnología y estrategia. Fundador de Zonar Marketing, colaborador con instituciones globales y creador de experiencias visuales que conectan e inspiran.  
-[Más info, enlaces y contacto arriba ⬆️]# zonaarm
-Maaarketing
+[Más info, enlaces y contacto arriba ⬆️]# 
